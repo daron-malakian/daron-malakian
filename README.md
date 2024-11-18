@@ -2,4 +2,4 @@
 
 u can find more abt me etc on my main i js like diff themes
 
-i luv my friedns charlie & jek (˶ ˘ ³˘)ˆᵕ ˆ˶)
+i luv my friedns (˶ ˘ ³˘)ˆᵕ ˆ˶)
