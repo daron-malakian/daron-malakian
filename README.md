@@ -1,2 +1,2 @@
-changed my main accs username bye
+changed my main accs username
 hi friends
